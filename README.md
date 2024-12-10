@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://github.com/user-attachments/assets/9a682720-1354-4175-b791-f3b518f17404" width="25" />  my socials
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://github.com/user-attachments/assets/9a682720-1354-4175-b791-f3b518f17404" width="25" />  my socials
 <img src="https://github.com/user-attachments/assets/c3290db1-b668-41f4-bb65-21a49d499e31" width="25" /> 
 
 <img src="https://github.com/user-attachments/assets/6b99a5c9-fbb9-4498-97a7-c673f389aa2b" width="25" />── .✦ <a href="https://t.me/kurrrrro">Telegram</a>
