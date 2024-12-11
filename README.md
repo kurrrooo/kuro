@@ -1,3 +1,4 @@
+ʜᴀɪɪɪɪ!1
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ✮⋆˙  <img src="https://github.com/user-attachments/assets/5d9947cb-0dbb-46cc-a9ea-744b0ffd56aa" width="100" />  ๋࣭⭑
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://github.com/user-attachments/assets/9a682720-1354-4175-b791-f3b518f17404" width="25" />  ᴍʏ ꜱᴏᴄɪᴀʟꜱ
