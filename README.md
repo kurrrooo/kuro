@@ -13,7 +13,6 @@
 
 <img src="https://github.com/user-attachments/assets/cf506904-0639-4a76-83a3-c4474eca135e" width="30" />── .✦<a href="https://vk.com/krsn4k?ysclid=m4iw7jiayh141593806">Вконтакте</a>
 
-<img src="https://github.com/user-attachments/assets/81de7b1b-1b92-40bc-af8e-be2e66de8fe0" width="30" />── .✦<a href="https://sininf0o.straw.page">My strawpage</a>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤDiscord @ is krrrsnw╳︎ info in tg @siniiiinf0o
 
